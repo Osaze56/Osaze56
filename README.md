@@ -1,6 +1,13 @@
-- 👋 Hi, I’m @Osaze56
-- 👀 I’m interested in ... coding 
-- 🌱 I’m currently learning ... web design 
+   My products 
+are well tasted and trusted.  Our aim is to give all our customers 
+
+   maximum satisfaction.
+
+  
+
+  
+   For Enquiries, Contact me:
+PHONE/WHATSAPP: 07080074715
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... osamen2020@gmail.com
 
