@@ -9,7 +9,7 @@ I’m open to learning opportunities, collaborations, and projects that help me 
    For Enquiries, Contact me:
 Call/Whatsapp: 08105284205
 LinkedIn:https://www.linkedin.com/in/osaze-marvellous-3134a3442?trk=contact-info
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m open to learning opportunities, collaborations, and projects that help me grow as a developer.
 - 📫 How to reach me ... osamen2020@gmail.com
 
 <!---
