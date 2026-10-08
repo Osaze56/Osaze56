@@ -1,7 +1,7 @@
-   My products 
-are well tasted and trusted.  Our aim is to give all our customers 
-
-   maximum satisfaction.
+I’m a Computer Science student passionate about web development and technology. 
+I enjoy building simple, functional, and user-friendly web applications while continuously improving my programming and problem-solving skills.
+I’m currently focused on strengthening my skills in HTML, CSS, JavaScript, PHP, MySQL, and Git/GitHub.
+I’m open to learning opportunities, collaborations, and projects that help me grow as a developer.
 
   
 
