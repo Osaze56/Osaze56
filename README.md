@@ -8,6 +8,7 @@ are well tasted and trusted.  Our aim is to give all our customers
   
    For Enquiries, Contact me:
 Call/Whatsapp: 08105284205
+LinkedIn:https://www.linkedin.com/in/osaze-marvellous-3134a3442?trk=contact-info
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... osamen2020@gmail.com
 
